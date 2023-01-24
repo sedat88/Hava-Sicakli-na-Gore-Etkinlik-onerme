@@ -1,0 +1,1 @@
+# Hava-Sicakli-na-Gore-Etkinlik-onerme
